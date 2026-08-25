@@ -2,18 +2,19 @@
 
 <h3 align="center">If you happened to stumble upon this, you're most likely from Pony Town. Congratulations, you made it!</h3>
 
-<h4 align="center">˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦</h4>
+$\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　}}$
+   
 <p align="center">
   <img width="264" height="288" alt="Green_and_Ralsei_overworld_hug" src="https://github.com/user-attachments/assets/4ed643e1-d86e-43d0-8539-a9d050a5f215" />
-  <img width="426" height="282" alt="Green_and_Susie_overworld_fistbump" src="https://github.com/user-attachments/assets/7d15823d-63eb-461c-af8a-cac223221a88" />
-<h4 align="center">˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦</h4>
+  <img width="426" height="282" alt="Green_and_Susie_overworld_fistbump" src="https://github.com/user-attachments/assets/7d15823d-63eb-461c-af8a-cac223221a88" /><br>
+$\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　}}$ 
 </p>
 
-<h3 align="center">All my silly little info is in my Strawpage if you'd like to look at it 🌟 https://xxjohansboywifefrvrxx.straw.page</h3>
+<h3 align="center">All my silly little info is in my Strawpage if you'd like to look at it 🌟 https://xxjohansboywifefrvrxx.straw.page</h3><br>
 
-<h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
+<h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
 <h2 align="center">If you wanna chat at all:</h2>
 
@@ -26,9 +27,9 @@
   <img width="172" height="272" alt="pony-town-⛓ Dess 🎸 C+H, w2i-applause-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/842915e7-9036-4a13-9c7e-5a1ca6b885c0"/>
 </p>
 
-<h4 align="center">Please don't copy or cover my skins, it's very disrespectful. I like looking at them and I spend a lot of time making them. Inspo is okay tho :)</h4>
+<h4 align="center">Please don't copy or cover my skins, it's very disrespectful. I like looking at them and I spend a lot of time making them. Inspo is okay tho :)</h4><br>
 
-<h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
+<h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
 <h2 align="center">Status</h2>
 
@@ -36,9 +37,9 @@
 
 <h4 align="center">🌙:  Watching YouTube most likely</h4>
 
-<h4 align="center">⛔:  Either drawing or I don't wanna talk. Nothing personal, I'm just like that sometimes</h4>
+<h4 align="center">⛔:  Either drawing or I don't wanna talk. Nothing personal, I'm just like that sometimes</h4><br>
 
-<h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
+<h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
 <h2 align="center">DNI/BYI</h2>
 
@@ -50,11 +51,11 @@
 
 <h4 align="left">⛧ Please use tone indicators when talking to me. If you think those are stupid, then don't waste your energy on it.</h4>
 
-<h4 align="left">⛧ PLEASE PLEASE PLEASE give me items!!! Especially when I'm playing as Green, it fills me with absolute JOY <333</h4>
+<h4 align="left">⛧ PLEASE PLEASE PLEASE give me items!!! Especially when I'm playing as Green, it fills me with absolute JOY <333</h4><br>
 
-<h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
+<h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
-<h3 align="center">Well, that's all for now! I hope you had fun looking at this ^^</h3>
+<h3 align="center">Well, that's all for now! I hope you had fun looking at this ^^</h3><br>
 
 <p align="center">
 <img width="186" height="288" alt="Green_overworld_wave" src="https://github.com/user-attachments/assets/7745d439-058f-49ee-b5ee-f6fed9326341" />
@@ -62,4 +63,4 @@
 <img width="264" height="282" alt="Green_battle_laurel" src="https://github.com/user-attachments/assets/d98e86cf-e821-435e-86e1-ca8690f30f5d" />
 </p>
 
-<h3 align="center">.... can you tell who my fav Deltarune character is 😳</h3>
+<h3 align="center">$${\color{green}.... \space can \space you \space tell \space who \space my \space fav \space character \space in \space Deltarune \space is \space 😳}$$</h3>
