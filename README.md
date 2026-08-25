@@ -1,6 +1,6 @@
 # <h2 align="center">Greetings.</h2>
 
-<h3 align="center">If you happened to stumble upon this, you're most likely from Pony Town. Congratulations, you made it!</h3>
+<h3 align="center">If you happened to stumble upon this, you're most likely from Pony Town. Congratulations, you made it!</h3><br>
 
 $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　}}$
@@ -49,9 +49,11 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 
 <h4 align="left">⛧ Don't friend me unless we've talked before.</h4>
 
-<h4 align="left">⛧ Please use tone indicators when talking to me. If you think those are stupid, then don't waste your energy on it.</h4>
+<h4 align="left">⛧ Please use tone indicators when talking to me. If you think those are stupid, suck it up.</h4>
 
-<h4 align="left">⛧ PLEASE PLEASE PLEASE give me items!!! Especially when I'm playing as Green, it fills me with absolute JOY <333</h4><br>
+<h4 align="left">⛧ PLEASE PLEASE PLEASE give me items!!! Especially when I'm playing as Green, it fills me with joy <333</h4><br>
+
+<h3 align="center">$\color{yellow}{\text{If any of my boundaries are violated, you will be blocked and hidden.}}$</h3><br>
 
 <h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
@@ -60,7 +62,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 <p align="center">
 <img width="186" height="288" alt="Green_overworld_wave" src="https://github.com/user-attachments/assets/7745d439-058f-49ee-b5ee-f6fed9326341" />
 <img width="216" height="276" alt="Green_overworld_guilty" src="https://github.com/user-attachments/assets/5718a818-4ad8-49e6-a2d9-cb8d58f5a8e0" />
-<img width="264" height="282" alt="Green_battle_laurel" src="https://github.com/user-attachments/assets/d98e86cf-e821-435e-86e1-ca8690f30f5d" />
+<img width="264" height="282" alt="Green_battle_laurel" src="https://github.com/user-attachments/assets/d98e86cf-e821-435e-86e1-ca8690f30f5d" /
 </p>
 
 <h3 align="center">$${\color{green}.... \space can \space you \space tell \space who \space my \space fav \space character \space in \space Deltarune \space is \space 😳}$$</h3>
