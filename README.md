@@ -10,9 +10,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
   <img width="426" height="282" alt="Green_and_Susie_overworld_fistbump" src="https://github.com/user-attachments/assets/7d15823d-63eb-461c-af8a-cac223221a88" /><br>
 $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　}}$ 
-</p>
-
-<h3 align="center">All my silly little info is in my Strawpage if you'd like to look at it on the left 🌟</h3><br>
+</p><br>
 
 <h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
