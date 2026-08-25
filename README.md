@@ -1,4 +1,4 @@
-# <h1 align="center">Greetings.</h1>
+# <h2 align="center">Greetings.</h2>
 
 <h3 align="center">If you happened to stumble upon this, you're most likely from Pony Town. Congratulations, you made it!</h3>
 
@@ -6,15 +6,43 @@
   <img width="264" height="288" alt="Green_and_Ralsei_overworld_hug" src="https://github.com/user-attachments/assets/4ed643e1-d86e-43d0-8539-a9d050a5f215" />
 </div>
 
-<h3 align="center">My "about me" info is in my Strawpage if you'd like to look at it - https://xxjohansboywifefrvrxx.straw.page</h3>
+<h3 align="center">All my silly little info is in my Strawpage if you'd like to look at it; https://xxjohansboywifefrvrxx.straw.page</h3>
 
 <h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
 
-<h1 align="center">If you wanna chat at all:</h1>
+<h2 align="center">If you wanna chat at all:</h2>
 
 <h3 align="center">I'm mainly in the 18+ American server and Safe Vietnamese server, but I server hop. These are my skins you'll usually see me play as!</h3>
 
-<p align="center">
-  <img src="first-gif.gif" width="45%" alt="First Demo" />
-  <img src="second-gif.gif" width="45%" alt="Second Demo" />
+<p align="left">
+  <img width="192" height="264" alt="pony-town-🖤 Johan 🌹 C+H, w2i-cheeky-wink-blinking-padded-toy270-4x" src="https://github.com/user-attachments/assets/1f13b04a-c86e-4a85-801b-11a33c086cab"/>
+  <img width="208" height="256" alt="pony-town-🌸 Goemon 🦋 C+H, w2i-nod-with-closed-eyes-blinking-padded-toy135-4x" src="https://github.com/user-attachments/assets/ca162d2c-e022-4695-8d20-8db777d02e4c"/>
+  <img width="184" height="252" alt="pony-town-Green 💚 _ C+H, w2i-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/6d5c8b3e-063a-4287-a3a2-bb4fa0955dbf"/>
+  <img width="172" height="272" alt="pony-town-⛓ Dess 🎸 C+H, w2i-applause-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/842915e7-9036-4a13-9c7e-5a1ca6b885c0"/>
 </p>
+
+<h3 align="center">Please don't copy or cover my skins, it's very disrespectful. I like looking at them and I spend a lot of time making them. Inspo is okay tho :)</h3>
+
+<h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
+
+<h2 align="center">Status</h2>
+
+<h3 align="center">🟢:  Online! Either wandering or chilling</h3>
+
+<h3 align="center">🌙:  Watching YouTube most likely</h3>
+
+<h3 align="center">⛔:  Either drawing or I don't wanna talk. Nothing personal, I'm just like that sometimes</h3>
+
+<h2 align="center">⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧</h2>
+
+<h2 align="center">DNI/BYI</h2>
+
+<h3 align="center">⛧ Basic DNI: just don't be rude, creepy, weird or whatever the fuck kind of degeneracy exists. And if you're a minor, strictly limit your interactions with me. </h3>
+
+<h3 align="center">⛧ I'm very introverted so I don't talk first usually. But I'm happy to chat when I'm up to it tho! ^^</h3>
+
+<h3 align="center">⛧ Don't friend me unless we've talked before.</h3>
+
+<h3 align="center">⛧ Please use tone indicators when talking to me. If you think those are stupid, then don't waste your energy on it.</h3>
+
+ 
