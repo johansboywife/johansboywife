@@ -12,7 +12,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　}}$ 
 </p>
 
-<h3 align="center">All my silly little info is in my Strawpage if you'd like to look at it 🌟 https://xxjohansboywifefrvrxx.straw.page</h3><br>
+<h3 align="center">All my silly little info is in my Strawpage if you'd like to look at it on the left 🌟</h3><br>
 
 <h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
