@@ -12,6 +12,8 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　}}$ 
 </p><br>
 
+<h4 align="center">All my silly little info about me is in my Strawpage! 🌟 https://xxjohansboywifefrvrxx.straw.page</h4><br>
+
 <h2 align="center">$\color{purple}{\text{⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧°.⋆༺♱༻⋆.°⛧}}$</h2><br>
 
 <h2 align="center">If you wanna chat at all:</h2>
