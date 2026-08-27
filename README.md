@@ -23,7 +23,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 <p align="left">
   <img width="192" height="264" alt="pony-town-🖤 Johan 🌹 C+H, w2i-cheeky-wink-blinking-padded-toy270-4x" src="https://github.com/user-attachments/assets/1f13b04a-c86e-4a85-801b-11a33c086cab"/>
   <img width="208" height="256" alt="pony-town-🌸 Goemon 🦋 C+H, w2i-nod-with-closed-eyes-blinking-padded-toy135-4x" src="https://github.com/user-attachments/assets/ca162d2c-e022-4695-8d20-8db777d02e4c"/>
-  <img width="184" height="252" alt="pony-town-Green 💚 _ C+H, w2i-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/6d5c8b3e-063a-4287-a3a2-bb4fa0955dbf"/>
+  <img width="184" height="252" alt="pony-town-Green 💚 they_them _ C+H, w2i-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/49b1e5a2-241f-4828-9d2c-b023240c6a31" />
   <img width="172" height="272" alt="pony-town-⛓ Dess 🎸 C+H, w2i-applause-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/842915e7-9036-4a13-9c7e-5a1ca6b885c0"/>
 </p>
 
