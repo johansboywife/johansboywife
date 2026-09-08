@@ -45,7 +45,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 
 <h4 align="left">⛧ Basic DNI: just don't be rude, creepy, weird or whatever the fuck kind of degeneracy exists. And if you're a minor, strictly limit your interactions with me. </h4>
 
-<h4 align="left">⛧ (If I'm in the 18+ server) If you're not American and say "Americans are stupid" or smth like that just bc you heard that stereotype, you're getting blocked and hidden immediately. Idgaf whether it's a joke or if it's genuine, you're disrespecting another culture either way. Not all Americans are stupid and fat. Understood?</h4>
+<h4 align="left">⛧ (If I'm in the 18+ server) If you're not American and say "Americans are stupid" or smth like that just bc you heard that stereotype, you're getting blocked and hidden immediately. Idgaf whether it's a joke or if it's genuine, you're disrespecting another culture either way. Don't always believe what you hear.</h4>
 
 <h4 align="left">⛧ I'm very introverted so I don't talk first usually. But I'm happy to chat when I'm up to it tho! ^^</h4>
 
