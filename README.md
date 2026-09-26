@@ -24,7 +24,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
   <img width="192" height="264" alt="pony-town-🖤 Johan 🌹 C+H, w2i-cheeky-wink-blinking-padded-toy270-4x" src="https://github.com/user-attachments/assets/1f13b04a-c86e-4a85-801b-11a33c086cab"/>
   <img width="208" height="256" alt="pony-town-🌸 Goemon 🦋 C+H, w2i-nod-with-closed-eyes-blinking-padded-toy135-4x" src="https://github.com/user-attachments/assets/ca162d2c-e022-4695-8d20-8db777d02e4c"/>
   <img width="184" height="264" alt="pony-town-Green 💚 they_them _ C+H, w2i-dance-1-a-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/6c5c46f3-523d-406e-968c-24db9ade19e9" />
-  <img width="172" height="272" alt="pony-town-⛓ Dess 🎸 C+H, w2i-applause-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/842915e7-9036-4a13-9c7e-5a1ca6b885c0"/>
+  <img width="172" height="224" alt="pony-town-⛓ Dess 🎸 C+H, w2i-dance-2-blinking-padded-4x" src="https://github.com/user-attachments/assets/e22fbc5d-3db6-445e-9116-4808fe68e15e" />
 </p>
 
 <h4 align="center">Please don't copy or cover my skins, it's very disrespectful. I like looking at them and I spend a lot of time making them. Inspo is okay tho :)</h4><br>
