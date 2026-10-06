@@ -18,7 +18,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 
 <h2 align="center">If you wanna chat at all:</h2>
 
-<h4 align="center">I'm mainly in the 18+ American server and Safe Vietnamese server, but I server hop. These are my skins you'll usually see me play as!</h4>
+<h4 align="center">I'm mainly in the 18+ American server and Safe Vietnamese server, but I server hop. If I'm in the Vietnamese server, I'm so sorry if I use a translator 😓 These are my skins you'll usually see me play as!</h4>
 
 <p align="left">
   <img width="192" height="264" alt="pony-town-🖤 Johan 🌹 C+H, w2i-cheeky-wink-blinking-padded-toy270-4x" src="https://github.com/user-attachments/assets/1f13b04a-c86e-4a85-801b-11a33c086cab"/>
