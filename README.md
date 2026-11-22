@@ -20,7 +20,7 @@ $\color{yellow}{\text{✦　　　.　　. 　 ˚　.　　　　　 . ✦　�
 
 <h4 align="center">I'm mainly in the 18+ American server and Safe Vietnamese server, but I server hop. If I'm in the Vietnamese server, I'm so sorry if I use a translator 😓 These are my skins you'll usually see me play as!</h4>
 
-<p align="left">
+<p align="center">
   <img width="192" height="264" alt="pony-town-🖤 Johan 🌹 C+H, w2i-cheeky-wink-blinking-padded-toy270-4x" src="https://github.com/user-attachments/assets/1f13b04a-c86e-4a85-801b-11a33c086cab"/>
   <img width="184" height="264" alt="pony-town-Green 💚 they_them _ C+H, w2i-dance-1-a-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/6c5c46f3-523d-406e-968c-24db9ade19e9" />
   <img width="172" height="224" alt="pony-town-Dess 🎸 C+H, w2i-dance-2-blinking-padded-4x" src="https://github.com/user-attachments/assets/f8ba4df2-259e-453e-9a8d-36efc33aa851" />
